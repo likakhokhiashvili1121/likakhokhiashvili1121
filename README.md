@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hi there! i'm liku<br>
+# 💫 Hi there! i'm liku<br>
+
 
 
 ## 🌐 Socials[:
